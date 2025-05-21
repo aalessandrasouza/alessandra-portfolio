@@ -1,4 +1,4 @@
-# 👩‍💻 Alessandra – Data & IA | Développement web | Éducation & Impact social
+# 👩‍💻 Alessandra – Data & IA | Développement web | Mathématiques appliquées
 
 ## Bonjour 👋
 
